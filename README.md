@@ -1,4 +1,4 @@
-# Gabriela Hernandez Gomez Projects
+# Gabriela Hernandez Gomez
 
 ## Projects and Coursework
 
